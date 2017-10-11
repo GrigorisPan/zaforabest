@@ -1,3 +1,1 @@
 # zaforabest
-[o[o[o
-
